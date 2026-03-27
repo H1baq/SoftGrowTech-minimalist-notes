@@ -1,0 +1,1 @@
+# SoftGrowTech-minimalist-notes
